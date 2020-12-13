@@ -1,1 +1,1 @@
-i hate life
+chocolate pudding
